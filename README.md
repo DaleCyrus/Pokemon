@@ -2,4 +2,10 @@
 
 ## About me
 
-Zamazenta >>>> Zacian
+Age: 19
+
+Birthday: May 11, 2006
+
+Hobby: Gaming
+
+Zamazenta >>>>> Zacian
